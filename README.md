@@ -1,4 +1,4 @@
 # neptuneshues.github.io
 slay
 i love timothée chalamet
-![Timothée Chalamet]([https://www.theplace2.ru/archive/timothee_chalamet/img/7c4f60b3bbad0724dd8dad4b8807f0c5.jpg]) "heehee i love him")
+![image](https://github.com/user-attachments/assets/d9ce4ac7-2872-4a6e-8c11-b60f11d85660)
